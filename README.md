@@ -1,1 +1,2 @@
-Hey there, Just keep going
+conssitency is key, Just keep going
+
